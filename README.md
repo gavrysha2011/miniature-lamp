@@ -1,0 +1,1 @@
+y# miniature-lamp
