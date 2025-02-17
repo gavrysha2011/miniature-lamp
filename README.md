@@ -1,1 +1,1 @@
-ruyy# miniature-lamp
+truyy# miniature-lamp
